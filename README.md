@@ -1,1 +1,1 @@
-# Create-brand-name-and-email-and-logo-in-canva
+#  video decomtration:https://youtu.be/7knUWaRwopo?feature=shared
